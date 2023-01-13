@@ -1,5 +1,7 @@
 # Remcos-Professional-Cracked-By-Alcatraz3222
 Remcos Professional Cracked By Alcatraz3222-Remote Administration Trojan-RAT
+ZIP PASSWORD : BreakingSecurity.net
+VER : v4.2.0 | 20 December 2022
 <!-- #######  YAY, I AM THE Alcatraz3222! #########-->
 <h2 style="color: #5e9ca0; text-align: center;"><strong>Remcos Professional Cracked By Alcatraz3222</strong></h2>
 <h2 style="color: #2e6c80; text-align: center;"><img src="https://i.imgur.com/RYV4UbT.gif" alt="" width="754" height="264" /></h2>
